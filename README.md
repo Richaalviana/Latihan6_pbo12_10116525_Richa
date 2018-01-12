@@ -1,0 +1,1 @@
+# Latihan6_pbo12_10116525_Richa
